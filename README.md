@@ -1,4 +1,4 @@
-## Hi there, I'm a Computing Graduate 👋
+## Hi there, I'm George, a Computing Graduate 👋
 
 🎓 BSc (Hons) Computing graduate with a 2:1 from Arden University, Manchester.
 
